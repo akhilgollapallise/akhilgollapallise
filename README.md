@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @akhilgollapallise
-- 🌱 I’m currently 
+- 🌱 I’m curren
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
