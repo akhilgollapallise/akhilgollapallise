@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @akhilgollapallise
 - 🌱 I’m currently learning 
-- 💞️ I’m looking to collaborat
+- 💞️ I’m looking to
 - 📫 How to reach me ...
 
 <!---
